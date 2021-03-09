@@ -8,5 +8,5 @@
 
 ## My history
 
-After training in graphics and video, I decided to focus on my passion: IT and development
-22 years old, and a great motivation, I try to improve myself every day in this direction
+After training in graphics and video, I decided to focus on my passion: IT and development.
+22 years old, and a great motivation, I try to improve myself every day in this direction.
